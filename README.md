@@ -11,3 +11,4 @@ i am running out of funds. and i really wanna build a community bc its so fun. b
 
 saturday 
 im going to a pride fest in my state. mainly for my sister. its gunna be fun tho
+well we barely went, like 5 mins in. my mom for no reason took her stressed out on me and embarresed me for no reason. just because she has terribel stress managment i hate it sm
